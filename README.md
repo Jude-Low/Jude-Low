@@ -9,6 +9,7 @@
 
 <img width="196" height="54" alt="image" src="https://github.com/user-attachments/assets/39ec0950-a88e-4357-b2ec-9c374e5fa2d8" />
 
+[Student.](https://github.com/IHASAFACE-LULZ)
 
 ![image](https://github.com/Jude-Low/dummyinbed/blob/b47af81c082c4e149d9e3d96d9c595dadfcebcae/HGG3qLsbQAAPz95-removebg-preview.png)
 
