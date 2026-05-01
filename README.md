@@ -1,6 +1,6 @@
 <div align="center">
 
-[wumble call out.](https://docs.google.com/document/d/1NszhTfxNQP9VFgepurESIkekdBPP_eFV7frgavzeGmg/edit?tab=t.0#heading=h.lobb8isybi56)
+[wumble call out doc.](https://docs.google.com/document/d/1NszhTfxNQP9VFgepurESIkekdBPP_eFV7frgavzeGmg/edit?tab=t.0#heading=h.lobb8isybi56)
   
 Was originally tagged on ; [Pt-Players](https://github.com/pt-awards) ^.^ and Tagged on -> [Pt-Awards](https://github.com/pt-players)
   
