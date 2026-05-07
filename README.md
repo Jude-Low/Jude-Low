@@ -24,3 +24,8 @@ Was originally tagged on ; [Pt-Players](https://github.com/pt-awards) ^.^ and Ta
 
 <img width="323" height="301" alt="image" src="https://github.com/user-attachments/assets/8ebdc8e0-f908-4b60-9b98-73c57760e5bc" />
 TEHEHE THANK YOU THIS IS SO CUTE
+
+`
+<img width="316" height="296" alt="image" src="https://github.com/user-attachments/assets/337b2b4c-b982-4660-9b28-bf747e65db5a" />
+
+NOOO GES ACTUALOLY SOO9 CUUUUTE OH MY GOD AWWWWWWW
