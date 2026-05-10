@@ -1,6 +1,6 @@
 <div align="center">
   
-[Pt-Players](https://github.com/pt-awards) [Pt-Awards](https://github.com/pt-players) [Title-Town](https://github.com/title-town)
+[Pt-Awards](https://github.com/pt-awards) [Pt-Players](https://github.com/pt-players) [Title-Town](https://github.com/title-town)
 
 Mental Health Awareness Month, as well as BPD Awareness Month ! You are loved . Suicide hotline: 988
 
